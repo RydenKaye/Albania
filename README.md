@@ -1,2 +1,0 @@
-# Albania
-the albanian flag
